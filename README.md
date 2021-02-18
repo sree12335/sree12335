@@ -1,4 +1,4 @@
-### Hey, here is what I'm currently working on! 👋
+### Hey, here is what I'm currently engaged in! 👋
 
 
 - 🔭 I’m currently working with Amazon
